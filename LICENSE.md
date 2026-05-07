@@ -1,4 +1,4 @@
-
+get strong for brainrots Script ultimate is the best get strong for brainrots Script, featuring no cooldown and auto-farm. Safe and powerful for all
 
 
 
